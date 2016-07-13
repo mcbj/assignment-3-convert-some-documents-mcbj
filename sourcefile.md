@@ -1,0 +1,79 @@
+Corey Bell Jr
+
+English 105
+
+Rosenbaum
+
+Unit 1 Project
+
+\
+\
+
+Concussions in football have become an epidemic in the football
+community and has become a popular subject to talk about amongst the
+media, football fans, players, coaches, and parents of America. Recently
+the National Football League (NFL) has been under a lot of scrutiny for
+not protecting their players properly and not letting them know about
+concussions sooner. Many former players who played in the NFL have had
+many problems mentally ever since they have retired from NFL, such as
+former NFL player Junior Seau who committed suicide on May 2, 2012. In
+an autopsy, it was later revealed that Seau was suffering from Chronic
+Traumatic Encephalopathy (CTE) which is a disease that develops in the
+brain due to many concussions sustained over time from constant blows to
+the head. Now the players (current and former) are feeling like the NFL
+has known about the dangers of concussions for a long time and have
+failed to notify, educate, and protect their players.
+
+A concussion is when the brain receives impact from a force or hit; you
+could get a concussion from many different aspects of life, but football
+has been considered a huge sport where concussions occur frequently.
+Concussions cannot be proven through a MRI or X-Ray. But concussions
+come with many symptoms that could come within minutes of sustaining
+one, or hours after. There are many symptoms which include: “Dizziness,
+Balance problems, Headache, being sensitive to light or noise” (BIANJ
+2015). Due to sustaining multiple concussions overtime, players can
+typically develop many brain diseases such as CTE in their 40’s and
+beyond. So now the NFL has been sued by a lot of their former players
+because the players claim that the NFL knew of the dangers of
+concussions long ago and are just now addressing concussions or trying
+to prevent them.
+
+Now that addressing concussions is in the limelight, there are many
+things you can do to help lower the risk of concussions. But there still
+will always be a chance of you sustaining a concussion when playing
+football. If you are having concussion-like symptoms or think you may
+have a concussion, you should: “Go to the doctor, get physical rest,
+take cognitive tests, and also keep a calendar of symptoms and report
+them to your doctor at follow-up visits” (BIANJ 2015). Even though there
+is no form or type of equipment that can stop you from sustaining a
+concussion, there are many things you can do and wear to prevent
+concussions or at least, lessen your chance of sustaining them. A big
+way you can keep your brain safe is to keep your head up while
+performing a tackle or block on another player. A lot of players
+now-a-days lead with the crown of their helmet and some end up getting a
+concussion as a result of them lowering their head. Some like former
+Rutgers linebacker Eric LeGrand, have experience far worse consequences
+for tackling with the crown of their helmet. LeGrand had sustained an
+injury to his spinal cord from the tackle and had become paralyzed from
+the waste down. So tackling technique is a huge way to prevent
+concussions and further injury. Equipment can play a big role in
+concussions as well. Many helmet companies such as Riddell and Schutt
+have been working year-to-year by trying to create a newer, safer
+helmet. By wearing the newest helmets issued, you can help protect your
+head and brain a lot more.
+
+Concussions are a dangerous injury and can do more damage to your body
+long-term than any other injury. Pulled muscles, fractured arms, broken
+collarbones and plenty of other injuries can heal. But concussions that
+are not treated can hurt your brain mentally over a long period of time
+and definitely in your life once football is over. There are many
+helmets that are made that can promise you that they are safer than
+other helmets, but right now there is no such helmet that can keep
+anyone from having a 0% chance of sustaining a concussion. When you play
+the game of football there is not much you can do to save yourself from
+being 100% safe from concussions, but you can do a lot of things right
+and wear the correct and safest equipment to better your chances. The
+only thing anyone can do to stop them from sustaining a concussion from
+playing football is to not play football at all. When someone signs up
+to play football, injuries and concussions are a big thing that comes as
+a risk when you play this sport.
